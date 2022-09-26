@@ -1,1 +1,1 @@
-# 338360.osinthijacking.itmo.xyz
+# way.osinthijacking.itmo.xyz
